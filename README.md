@@ -5,6 +5,6 @@
 
 Here are some ideas to get you started:
 
-- Im working on a project
+- I play tenis
 - 🌱 I’m currently learning HTML
 - ⚡ Fun fact: I am from PR

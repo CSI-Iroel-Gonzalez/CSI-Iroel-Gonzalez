@@ -20,5 +20,5 @@
 3. Retira las especias (canela, clavitos) añade la azúcar mezcla bien hasta que se diluya , luego y añádele la maicena  (diluir antes en un poco de agua) cocinar a fuego mediano hasta que hierva y espese retíralo del fuego.
 4. Echarlo en un molde o en copas.
 
-### Referncias:
+###### Referncias:
 https://sazonboricua.com/tembleque/

@@ -1,5 +1,7 @@
 <div align="center">
   
+<img src="https://www.tureceta.net/wp-content/uploads/2020/09/Tembleque-Puertorriqueno.jpg" width="520" height="374" />
+
 # Manjares Navideños
 ## Tembleque
 
@@ -8,8 +10,8 @@
 ### Ingredientes:
 
 
-- 🥛 ***1***  (13.5 oz) lata de leche de coco
-- 🥥***1*** (15oz.) lata de crema de Coco
+- 🥛 ***1***  (13.5oz) lata de leche de coco
+- 🥥***1*** (15oz) lata de crema de Coco
 - 🚰***1*** taza de agua
 - 🌾***2/3*** taza de maicena (fécula de maíz)
 - 🍬***1/2*** taza de azúcar
@@ -24,7 +26,7 @@
 3. Retira las especias (canela, clavitos)
 4. Añade la azúcar mezcla bien hasta que se diluya
 5. Luego y añádele la maicena  (diluir antes en un poco de agua) 
-6. Locinar a fuego mediano hasta que hierva y espese retíralo del fuego.
+6. Cocinar a fuego mediano hasta que hierva y espese retíralo del fuego.
 7. Echarlo en un molde o en copas.
 
 ### Referncias:

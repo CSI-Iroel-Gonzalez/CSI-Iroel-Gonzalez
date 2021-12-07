@@ -29,5 +29,11 @@
 6. Cocinar a fuego mediano hasta que hierva y espese retíralo del fuego.
 7. Echarlo en un molde o en copas.
 
+### Video de la receta
+- https://youtu.be/jsKdmhDgSpM
+<br>
+
 ### Referncias:
 https://sazonboricua.com/tembleque/
+
+

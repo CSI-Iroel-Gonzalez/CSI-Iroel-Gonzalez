@@ -33,7 +33,7 @@
 - https://youtu.be/jsKdmhDgSpM
 <br>
 
-### Referncias:
+### Referecias:
 https://sazonboricua.com/tembleque/
 
 
